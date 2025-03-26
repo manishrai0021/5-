@@ -1,2 +1,2 @@
-# 5-
+# 5₹
 A well-executed ₹5 project can create a significant impact by demonstrating how small investments can drive large-scale change—whether by providing affordable solutions for underserved communities, promoting financial inclusion, encouraging micro-entrepreneurship, reducing waste through upcycling, or proving that innovation and efficiency can......
